@@ -24,7 +24,7 @@ Crypto Wallet Watch Educational Games Company
 
 ![](https://www.liveabout.com/thmb/UHzUYh4OTdyDSszmaODjcG8iDdI=/768x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/6541-000409a-56a741ef3df78cf77293be16.jpg)
 
-# Watch Tower Citadel
+# HOTEL Real EState + Educational Businesses   Watch Tower Citadel
 ![](https://i2-prod.manchestereveningnews.co.uk/incoming/article17820034.ece/ALTERNATES/s615b/0_Principal-Hotel-sign-change.jpg)
 Manchester Evening News
 The old Palace Hotel's landmark clock to
