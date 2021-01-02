@@ -19,6 +19,12 @@ Crypto Wallet Watch Educational Games Company
 ## Edu-Entertainment - Speculation - Poker + Portable Trading Cards
 
 ![](https://encrypted-tbn1.gstatic.com/shopping?q=tbn:ANd9GcT0AsFCFdjiDWYlApkkgevml729LkdAXlJ8E-X9xEyfAZN6G-WQyq-y5HT_TXZupu_wzL3Q_3r7xL5jmcfaFa1EJqRcfscK3rXNNUO5V3Eh&usqp=CAc)
-https://www.liveabout.com/4-kings-in-deck-of-cards-2728321
+
+# https://www.liveabout.com/4-kings-in-deck-of-cards-2728321
+
 ![](https://www.liveabout.com/thmb/UHzUYh4OTdyDSszmaODjcG8iDdI=/768x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/6541-000409a-56a741ef3df78cf77293be16.jpg)
 
+# Watch Tower Citadel
+![](https://i2-prod.manchestereveningnews.co.uk/incoming/article17820034.ece/ALTERNATES/s615b/0_Principal-Hotel-sign-change.jpg)
+Manchester Evening News
+The old Palace Hotel's landmark clock to
