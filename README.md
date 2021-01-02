@@ -28,3 +28,4 @@ Crypto Wallet Watch Educational Games Company
 ![](https://i2-prod.manchestereveningnews.co.uk/incoming/article17820034.ece/ALTERNATES/s615b/0_Principal-Hotel-sign-change.jpg)
 Manchester Evening News
 The old Palace Hotel's landmark clock to
+## Hotoweler
